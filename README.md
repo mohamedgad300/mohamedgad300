@@ -34,6 +34,7 @@ Turning numbers into narratives is not just my job — it’s my passion.
 - 💼 [LinkedIn](https://www.linkedin.com/in/mohammed-ashraf-749015226/)  
 - 🐙 [GitHub](https://github.com/mohamedgad300)  
 - 📧 mohamedashrwf@gmail.com
+- 💬 [WhatsApp](https://wa.me/201096454566)
 
 ---
 
