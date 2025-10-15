@@ -35,6 +35,8 @@ Turning numbers into narratives is not just my job — it’s my passion.
 - 🐙 [GitHub](https://github.com/mohamedgad300)  
 - 📧 mohamedashrwf@gmail.com
 - 💬 [WhatsApp](https://wa.me/201096454566)
+-  📸 [Instagram](https://www.instagram.com/mga8d/?hl=ar)
+-  📞 +20 109 645 4566
 
 ---
 
